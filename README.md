@@ -1,0 +1,4 @@
+- 👋 Hi, I’m wpmiko124
+- 👀 I’m interested in Fishing
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on kamil
